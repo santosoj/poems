@@ -7,6 +7,7 @@
 - *2024-02-08*: [then so be it](then_so_be_it__20240208.txt)
 - *2024-02-12*: [shame is the mind killer](00-shame_is_the_mind_killer__20240212.txt)
 - *2024-02-28*: [invokation ov thee i.r.a.](invokation_ov_thee_ira__20240228.txt)
+- *2024-03-22*: [there was a colour red – andouille the painter](there_was_a_colour_red__andouille_the_painter__20240322.txt)
 
 ### → [shame is the mind killer](00-shame_is_the_mind_killer__20240212.txt) ← ###
 
