@@ -8,6 +8,7 @@
 - *2024-02-12*: [shame is the mind killer](00-shame_is_the_mind_killer__20240212.txt)
 - *2024-02-28*: [invokation ov thee i.r.a.](invokation_ov_thee_ira__20240228.txt)
 - *2024-03-22*: [there was a colour red – andouille the painter](there_was_a_colour_red__andouille_the_painter__20240322.txt)
+- *2024-03-25*: [the horned god’s gift](the_horned_god’s_gift__20240325.txt)
 
 ### → [shame is the mind killer](00-shame_is_the_mind_killer__20240212.txt) ← ###
 
